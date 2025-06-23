@@ -23,7 +23,7 @@
 
 点击访问：<a href="https://cg40-3.pages.dev/">暗网禁区</a>
 
-点击访问：<a href="(https://hj-1305.pages.dev/">海角 母子</a>
+点击访问：<a href="https://hj-1305.pages.dev/">海角 母子</a>
 
 点击访问：<a href="https://hj-1295.pages.dev/">51视频网站</a>
 
